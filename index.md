@@ -9,5 +9,4 @@ The Last of us Part is currently the best game in the world, belive me, I played
 * Friendly
 * clever
 
-
 > I will kill every last one of them
